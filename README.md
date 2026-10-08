@@ -82,6 +82,6 @@ Looking for **Junior Data Analyst / Data Analyst opportunities** where I can app
 
 ## 📫 Connect With Me
 
-🔗 [LinkedIn](YOUR_LINKEDIN_URL)
+🔗 [LinkedIn](linkedin.com/in/lawanya-saini)
 
-📧 Email: YOUR_EMAIL
+📧 Email: Lawanyasaini03081999@gmail.com
